@@ -7,3 +7,7 @@ https://www.youtube.com/watch?v=BH0j4qQORqE&list=PL5LiOvrbVo8keeEWRZVaHfprU4zQTC
 
 
 [GRAFIKKARTE in MINECRAFT - Redstone Tutorial | FÜR DISPLAYS und CO.](https://www.youtube.com/watch?v=-EuAfPI1f_E)
+
+[Redstone Display LLR #9](https://www.youtube.com/watch?v=mDLfUbAK9T0&t=1204s)
+
+https://www.youtube.com/results?search_query=redstone+display+%23LLR
